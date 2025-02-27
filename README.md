@@ -1,1 +1,0 @@
-# otlbne_getak
